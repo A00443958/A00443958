@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @A00443958 (Bhanu Prakash Ediga)
+👋 Hi, I’m Bhanu Prakash Ediga(@A00443958 )
 
 ## About Me ##
 
